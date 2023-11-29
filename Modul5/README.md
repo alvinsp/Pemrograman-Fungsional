@@ -1,6 +1,6 @@
-**LATIHAN 1**
+**LATIHAN 1**\n
 !(https://drive.google.com/file/d/16OE_ZArCBBiPismOG6R6FqNKC1oQNIWh/view?usp=drive_link)
-
+"\n"
 **LATIHAN 2**
 !(https://drive.google.com/file/d/10rzQpGAsOIk4-DSrLgYDmrKXwlIi0fpF/view?usp=drive_link)
 
