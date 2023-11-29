@@ -1,5 +1,5 @@
 **LATIHAN 1** 
-![latihan1](https://drive.google.com/file/d/16OE_ZArCBBiPismOG6R6FqNKC1oQNIWh/view?usp=drive_link)
+![latihan1](photo_6285300337363498753_y.jpg)
 
 **LATIHAN 2**
 ![latihan2](https://drive.google.com/file/d/10rzQpGAsOIk4-DSrLgYDmrKXwlIi0fpF/view?usp=drive_link)
